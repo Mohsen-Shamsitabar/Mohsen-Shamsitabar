@@ -1,5 +1,5 @@
 <div align="center">
-  <img height="400" src="https://cutewallpaper.org/21x/360q2akvg/Cool-Skull-With-Gas-Mask-Wallpapers-Viva-Wallpapers.jpg"  />
+  <img height="400" src="https://wallpaperwaifu.com/wp-content/uploads/2021/05/gas-mask-neon-with-crow-thumb.jpg"  />
 </div>
 
 ###
